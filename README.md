@@ -1,2 +1,1 @@
-# Roblox-Destroyer
-You can destroy roblox game So people can get angry
+As you can see you will destroy roblox games on any region!
